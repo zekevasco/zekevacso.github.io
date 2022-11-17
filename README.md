@@ -18,9 +18,6 @@ The Rhodesian Ridgeback is a large scenthound and sighthound dog breed bred in t
 
 ![Ridgeback](https://tse4.mm.bing.net/th?id=OIP.53IXK3sSRC-ONugj4mlzLQHaFn&pid=Api&P=0)
 # Source:
-[Korean Jindo Dog]
-(https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
-[Perro de Presa Canario]
-(https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
-[Rhodesian Ridgeback]
-(https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
+[Korean Jindo Dog](https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
+[Perro de Presa Canario](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
+[Rhodesian Ridgeback](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
