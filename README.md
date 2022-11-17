@@ -19,7 +19,35 @@ The Presa Canario is a Spanish breed of large dog of mastiff or catch dog type. 
 The Rhodesian Ridgeback is a large scenthound and sighthound dog breed bred in the Southern Africa region. Its forebears can be traced to the semi-domesticated ridged hunting and guardian dogs of the Khoikhoi. These were interbred with European dogs by the early colonists of the Cape Colony of southern Africa.
 
 ![Ridgeback](https://tse4.mm.bing.net/th?id=OIP.53IXK3sSRC-ONugj4mlzLQHaFn&pid=Api&P=0)
+
+## What are the top 3 least dangerous dog in the world?
+1. Basset Hound
+2. Beagle
+3. Bernese Mountain Dog
+
+### What is Busset Hound?
+The Basset Hound is a short-legged breed of dog in the hound family. The Basset is a scent hound that was originally bred for the purpose of hunting hare. Their sense of smell and ability to ground-scent is second only to the Bloodhound. Basset Hounds are one of six recognized "basset"-type breeds in France.
+
+![Busset](https://spot-and-tango.s3.amazonaws.com/production/media/Basset_Hound_2019-08-29T203015.jpg)
+
+### What is Beagle?
+
+The beagle is a breed of small scent hound, similar in appearance to the much larger foxhound. The beagle was developed primarily for hunting hare known as beagling. Possessing a great sense of smell and superior tracking instincts, the beagle is the primary breed used as a detection dog for prohibited agricultural imports and foodstuffs in quarantine around the world.
+
+![Beagle](https://tse4.mm.bing.net/th?id=OIP.l4z5FSP_MY5VUKZDiwxnpQHaFS&pid=Api&P=0)
+
+### What is Bernease Mountain Dog
+
+The Bernese Mountain Dog is a large dog breed, one of the four breeds of Sennenhund-type dogs from the Swiss Alps. These dogs have roots in the Roman mastiffs. The name Sennenhund is derived from the German Senne ("alpine pasture") and Hund (hound/dog), as they accompanied the alpine herders and dairymen called Senn.
+
+![Bernease Mountain Dog](https://tse4.mm.bing.net/th?id=OIP.bXCfZD_u2xGa5P0_ihQC2QHaE8&pid=Api&P=0)
+
+
 # Source:
 [Korean Jindo Dog](https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
 [Perro de Presa Canario](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
 [Rhodesian Ridgeback](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
+[Busset Hound](https://spot-and-tango.s3.amazonaws.com/production/media/Basset_Hound_2019-08-29T203015.jpg)
+[Beagle](https://tse4.mm.bing.net/th?id=OIP.l4z5FSP_MY5VUKZDiwxnpQHaFS&pid=Api&P=0)
+[Bernease Mountain Dog](https://tse4.mm.bing.net/th?id=OIP.bXCfZD_u2xGa5P0_ihQC2QHaE8&pid=Api&P=0)
+
