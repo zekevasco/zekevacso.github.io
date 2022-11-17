@@ -5,6 +5,7 @@
 1. Korean Jindo Dog (75.86%)
 2. Perro de Presa Canario (72.73%)
 3. Rhodesian Ridgeback (71.05%)
+
 ### What is Korean Jindo Dog?
 Back to Top The Korean Jindo is a medium-sized, rare spitz breed. “Spitz” is a term that’s used to describe a group of dogs with similar characteristics, namely a thick double coat, a wedge-shaped head, upright triangular ears, and a long tail that curls up and over the back.
 
