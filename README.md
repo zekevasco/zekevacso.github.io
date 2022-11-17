@@ -2,11 +2,11 @@
 # What is Dog?
 ## Dogs were probably the first tame animals. They have accompanied humans for at least 20,000 years and possibly as many as 40,000. Scientists generally agree that all dogs, domestic and wild, share a common wolf ancestor; at some point grey wolves and dogs went on their separate evolutionary ways. 
 ![Dog](https://tse1.mm.bing.net/th?id=OIP.tDmt1DkHIDXbvIuNWJgg0QHaE8&pid=Api&P=0&w=300&h=300)
-### What are the top 3 best dogs?
+## What are the top 3 best dogs?
 1. Korean Jindo Dog (75.86%)
 2. Perro de Presa Canario (72.73%)
 3. Rhodesian Ridgeback (71.05%)
-### What is Korean Jindo Dog?
+## What is Korean Jindo Dog?
 Back to Top The Korean Jindo is a medium-sized, rare spitz breed. “Spitz” is a term that’s used to describe a group of dogs with similar characteristics, namely a thick double coat, a wedge-shaped head, upright triangular ears, and a long tail that curls up and over the back.
 
 ![Korean Jindo Dog](https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
