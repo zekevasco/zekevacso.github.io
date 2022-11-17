@@ -17,7 +17,10 @@ The Presa Canario is a Spanish breed of large dog of mastiff or catch dog type. 
 The Rhodesian Ridgeback is a large scenthound and sighthound dog breed bred in the Southern Africa region. Its forebears can be traced to the semi-domesticated ridged hunting and guardian dogs of the Khoikhoi. These were interbred with European dogs by the early colonists of the Cape Colony of southern Africa.
 
 ![Ridgeback](https://tse4.mm.bing.net/th?id=OIP.53IXK3sSRC-ONugj4mlzLQHaFn&pid=Api&P=0)
-# Sources
-[Korean Jindo Dog](https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
-[Perro de Presa Canario](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
-[Rhodesian Ridgeback](https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
+# Source:
+[Korean Jindo Dog]
+(https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
+[Perro de Presa Canario]
+(https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
+[Rhodesian Ridgeback]
+(https://tse1.mm.bing.net/th?id=OIP.fbPZJGQJygkpQQdWNb7T6gHaE8&pid=Api&P=0)
