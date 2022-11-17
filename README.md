@@ -9,6 +9,7 @@
 Back to Top The Korean Jindo is a medium-sized, rare spitz breed. “Spitz” is a term that’s used to describe a group of dogs with similar characteristics, namely a thick double coat, a wedge-shaped head, upright triangular ears, and a long tail that curls up and over the back.
 
 ![Korean Jindo Dog](https://tse1.mm.bing.net/th?id=OIP.I2D5tQDRk8rGHjW9ohTGPQHaE8&pid=Api&P=0)
+
 ### What is Perro de Presa Canario?
 The Presa Canario is a Spanish breed of large dog of mastiff or catch dog type. It originates in the autonomous region of the Canary Islands, and is found mostly in the islands of Gran Canaria and Tenerife. It was formerly known as the Dogo Canario. It was traditionally used as a guard dog, as a herding dog for both sheep and cattle, and for dog-fighting, which was legal in Spain until 1936
 
